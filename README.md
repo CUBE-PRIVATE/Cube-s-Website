@@ -1,3 +1,6 @@
-# Cube-s-Website
+# CubesPrivate-Website
 
-Under construction.
+Now FINISHED!
+
+Check it out!
+No forking please.
